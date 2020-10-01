@@ -1,2 +1,5 @@
-# Free-Use-Of-Online-MS-Office-Applications
-Free Use Of Online MS Office Applications
+
+MS Office suite is totally free for if you have an email address with .edu and you are either the student or instructor or tutor. It will allow you to download and set up MS Office 365 suite online from office.com/setup.
+
+The point is that your institution has to have purchased an educational license of MS Office application online from office.com/setup. So try your .edu email address and get a free MS Office suite from office.com/setup. Best of Luck!office.com/setup
+http://office-settup.com/
